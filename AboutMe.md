@@ -17,6 +17,8 @@ Apart from attending the coding bootcamp, I also create custom enamel pins, trav
 
 ![Travel](https://github.com/OMDeMoss/week1/blob/main/Screen%20Shot%202021-09-16%20at%202.51.05%20PM.png?raw=true)
 
+---
+
 
 
 
